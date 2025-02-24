@@ -1,3 +1,7 @@
+# <a href="https://shorten.is/yamantv">CANLI MAÇ İZLEMEK İÇİN TIKLA</a>
+
+<a href="https://shorten.is/yamantv"><img src="https://yaylahabercomtr.teimg.com/crop/1280x720/yaylahaber-com-tr/uploads/2025/02/gsfb-2.jpg"></a>
+
 # Selçuksports | 24 Şubat Galatasaray - Fenerbahçe Maçını Canlı İzle
 
 Türkiye'nin en büyük derbilerinden biri olan **Galatasaray - Fenerbahçe** mücadelesi için nefesler tutuldu! 24 Şubat'ta oynanacak bu dev maçı **Selçuksports** farkıyla **HD ve kesintisiz** izlemek için doğru adrestesiniz.
