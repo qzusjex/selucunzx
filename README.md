@@ -1,4 +1,4 @@
-# Selçuksports - 24 Şubat Galatasaray - Fenerbahçe Maçını Canlı İzle
+# Selçuksports | 24 Şubat Galatasaray - Fenerbahçe Maçını Canlı İzle
 
 Türkiye'nin en büyük derbilerinden biri olan **Galatasaray - Fenerbahçe** mücadelesi için nefesler tutuldu! 24 Şubat'ta oynanacak bu dev maçı **Selçuksports** farkıyla **HD ve kesintisiz** izlemek için doğru adrestesiniz.
 
